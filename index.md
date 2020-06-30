@@ -10,3 +10,8 @@ Er wird als Junge entführt, kommt aber gut zurecht und wird später ein Häuptl
 * liebt Met
 * Vermisst seine Mutter
 * Kennt gute Trinksprüche __(Wichtig!)__
+
+
+Der kleine Prinz sagt:
+> Man sieht nur mit dem Herzen gut
+> Das wirklich Wichtige ist unsichtbar
