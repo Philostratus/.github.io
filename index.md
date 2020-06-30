@@ -15,3 +15,6 @@ Er wird als Junge entführt, kommt aber gut zurecht und wird später ein Häuptl
 Der kleine Prinz sagt:
 > Man sieht nur mit dem Herzen gut
 > Das wirklich Wichtige ist unsichtbar
+
+Der Autor Bengtson:
+<img src="https://de.wikipedia.org/wiki/Frans_G._Bengtsson#/media/Datei:Frans_G._Bengtsson.jpg"/>
